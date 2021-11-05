@@ -1,5 +1,5 @@
-## A Constantly Evolving Story About **The Huu**
-This is a book about a people calld The Huu.
+## A Constantly Evolving Story About **the Huu**
+This is a book about a people calld the huu.
 
 The Huu live remotely from another people called The Greatmasse for good reason.
 
