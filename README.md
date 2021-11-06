@@ -1,4 +1,4 @@
-# A Constantly Evolving Story About **The Huu**
+# A Tribe Called **The Huu**
 This is a book about a people called the huu.
 
 The huu live remotely from another people called **the greatmasse**. And for good reason.
