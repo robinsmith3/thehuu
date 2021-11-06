@@ -5,7 +5,7 @@ The huu live remotely from another people called **the greatmasse**. And for goo
 
 No one undersands why but the greatmasse constantly cause harm to each other, under a veil of saving each other. Usually this harm is done on a system wide scale causing suffering for the entire population.
 
-Knowing this very well the huu observe the greatmasse from a distance, learning what **not** to do. To maintain fulfilling lives while not harming each other. Knowing how to stop harming ohers comes for free. There's no cost to it, one just stops doing the harm.
+Knowing this very well the huu observe the greatmasse from a distance, learning what **not** to do. To maintain fulfilling lives while not harming each other. Knowing how to stop harming others comes for free. There's no cost to it, one just stops doing the harm.
 
 The huu are well aware that 'helping others' or 'saving the planet' will only cause more suffering. As a first duty, the huu live by working out how they can get their own house in order and consider carefully the unintended consequences of helping.
 
