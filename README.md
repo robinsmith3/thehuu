@@ -1,4 +1,4 @@
-# A Tribe Called **The Huu**
+# A Tribe Called **Huu**
 This is a book about a people called the huu.
 
 The huu live remotely from another people called **the greatmasse**. And for good reason.
