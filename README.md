@@ -11,7 +11,7 @@ The huu are well aware that 'helping others' or 'saving the planet' will only ca
 
 They have figured out the only activity which does work with others, is love - the act of doing something for the good of it. Rather than to help or for the expectation of some kind of reward in return. The huu are well aware that giving love is extremely hard to do.
 
-The greatmasse mock the hu, calling them foolish, naive, weak and arrogant.
+The greatmasse mock the huu, calling them foolish, naive, weak and arrogant.
 
 There is a difference between the huu and the greatmasse: the greatmasse always requires some kind of controlling master figure. This master gives the greatmasse what they feel is the security necessary to make progress. Be that democratic government, a despotic tyrant or even an imaginary father figure in heaven doing the bidding of the democrat and tyrant in a hoped for afterlife. This master of protection is always powered by force and punishment. Whichever it takes, the greatmasse insist they have a powerful master of some kind protecting them. 
 
